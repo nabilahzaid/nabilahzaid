@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nabilah.zaid@gmail.com**
 
-- ⚡ Fun fact **Sometimes I like to think I'm a ninja**
+- ⚡ Fun fact **Sometime I like to think I'm a ninja**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
